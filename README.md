@@ -1,1 +1,0 @@
-Mody do bety.
